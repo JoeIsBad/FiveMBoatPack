@@ -23,4 +23,4 @@ https://www.gta5-mods.com/vehicles/phm-atlantico-add-on-canal-embraer-gta
 https://www.gta5-mods.com/vehicles/life-raft-add-on-lods-unlocked
 https://www.gta5-mods.com/vehicles/us-navy-lcac-hovercraft
 https://www.gta5-mods.com/vehicles/jet-ski-gendarmerie
-https://www.gta5-mods.com/vehicles/sear-ray-650-express-add-on-replace
+https://www.gta5-mods.com/vehicles/sear-ray-650-express-add-on-replace 
